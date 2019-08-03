@@ -1,6 +1,6 @@
 # Maximilian Stelling
 
 ## about me
-my name is max.
+my name is **max**.
 
-my favorite subject is maths
+my *favorite* subject is maths
