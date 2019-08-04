@@ -33,7 +33,16 @@ later we went  to the parrog
 and the next day
 my grandparents
 had to leave but we stayed
-and our friends came over for the rest of the week
+and our friends jezz emma and robin and lilian came over for the rest of the week
 butit was too full for everyone to fit so ada an i went into ivys room ada and ivy slept in beds and i slept on the air matres
 
 the next day we went to betis and i got stung by a jellyfish.
+
+it fels like pins and kneedles but without the pins at first it fells paralysing after is kneedly it stops stinging afer a few minutes.
+
+and its hard to walk for a little while after.
+
+the next day we woke up to fly our kite
+but the was sewage comeing from treath
+and we saw jellyfish and a small live one was  in a pool  a family was protecting it from the seagulls.
+that night we had a bbq and after tea we went to the big sands and ada and i sort of got lost and helecopters were looking for us!!
