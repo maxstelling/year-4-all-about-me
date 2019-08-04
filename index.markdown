@@ -24,8 +24,16 @@ and we went inside to meet my grandparents
 
 first we decided witch rooms we were going to sleep in.
 
-
-
-
 as you go into the house there ar 3 options if you go left you enter the living room if you turn right you enter the dining room
-and as for forwards it leads to up stairs 
+and as for forwards it leads to up stairs
+
+later we went  to the parrog
+(witch is directley in front of us)
+
+and the next day
+my grandparents
+had to leave but we stayed
+and our friends came over for the rest of the week
+butit was too full for everyone to fit so ada an i went into ivys room ada and ivy slept in beds and i slept on the air matres
+
+the next day we went to betis and i got stung by a jellyfish
