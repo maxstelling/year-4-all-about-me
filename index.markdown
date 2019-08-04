@@ -33,7 +33,7 @@ later we went  to the parrog
 and the next day
 my grandparents
 had to leave but we stayed
-and our friends jezz emma and robin and lilian came over for the rest of the week
+and our friends Andy emma and robin and lilian came over for the rest of the week
 butit was too full for everyone to fit so ada an i went into ivys room ada and ivy slept in beds and i slept on the air matres
 
 the next day we went to betis and i got stung by a jellyfish.
