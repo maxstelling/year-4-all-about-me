@@ -46,3 +46,4 @@ the next day we woke up to fly our kite
 but the was sewage comeing from treath
 and we saw jellyfish and a small live one was  in a pool  a family was protecting it from the seagulls.
 that night we had a bbq and after tea we went to the big sands and ada and i sort of got lost and helecopters were looking for us!!
+the next day we had to leave so we packed up and left.
