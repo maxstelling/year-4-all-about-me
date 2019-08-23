@@ -27,14 +27,13 @@ first we decided witch rooms we were going to sleep in.
 as you go into the house there ar 3 options if you go left you enter the living room if you turn right you enter the dining room
 and as for forwards it leads to up stairs
 
-later we went  to the parrog
-(witch is directley in front of us)
+later we went  to the parrog climbed on the rocks.
 
 and the next day
 my grandparents
 had to leave but we stayed
 and our friends Andy emma and robin and lilian came over for the rest of the week
-butit was too full for everyone to fit so ada an i went into ivys room ada and ivy slept in beds and i slept on the air matres
+but it was too full for everyone to fit so ada an ivy went into ivys room ada and ivy slept in beds and i slept on the air matres
 
 the next day we went to betis and i got stung by a jellyfish.
 
@@ -45,5 +44,7 @@ and its hard to walk for a little while after.
 the next day we woke up to fly our kite
 but the was sewage comeing from treath
 and we saw jellyfish and a small live one was  in a pool  a family was protecting it from the seagulls.
-that night we had a bbq and after tea we went to the big sands and ada and i sort of got lost and helecopters were looking for us!!
-the next day we had to leave so we packed up and left.
+that night we had a bbq and after tea we went to the big sands and ada and i sort of got lost and helecopters were looking for us!! DU DU DUNN!!!
+the next day we had to leave so we packed up and while the adults were packing me ada ivy lilian+robin played tag in the garden after the adults finished packing. andy emma lilian and robin waved good bye and went up the hill to go home. a few minutes later we did the same. and then we set off on our next car ride
+the next day we had a bit of a lazy day because my mum had to pac+un-pac
+on our next car ride
