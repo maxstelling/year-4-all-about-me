@@ -45,6 +45,8 @@ the next day we woke up to fly our kite
 but the was sewage comeing from treath
 and we saw jellyfish and a small live one was  in a pool  a family was protecting it from the seagulls.
 that night we had a bbq and after tea we went to the big sands and ada and i sort of got lost and helecopters were looking for us!! DU DU DUNN!!!
-the next day we had to leave so we packed up and while the adults were packing me ada ivy lilian+robin played tag in the garden after the adults finished packing. andy emma lilian and robin waved good bye and went up the hill to go home. a few minutes later we did the same. and then we set off on our next car ride
+
+
+The next day we had to leave so we packed up and while the adults were packing me ada ivy lilian+robin played tag in the garden after the adults finished packing. andy emma lilian and robin waved good bye and went up the hill to go home. a few minutes later we did the same. and then we set off on our next car ride
 the next day we had a bit of a lazy day because my mum had to pac+un-pac
 
