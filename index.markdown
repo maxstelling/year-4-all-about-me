@@ -3,7 +3,7 @@
 ## about me
 my name is **max**.
 
-my *favorite* subject is maths
+my *favourite* subject is maths
 my sense of humour is **high**.
 and i love to use compuputers
 especaly tricky things thingslike making a website on github
@@ -12,7 +12,7 @@ edit your writing the quickest way to gt to the end of the line is to click the 
 
 
 ### seagull cottige newport
- on satuday the day after the end of term
+ on Satuday the day after the end of term
 at abbout 9:21 we all ran around getting ready around with rosa alssleep (luckily)
 then we got in the car and set off on our 4 hour journey
 
@@ -54,7 +54,7 @@ then the car broke doun so all that **week** we were inside!
                   
  #### menorca                
 we arrived at the air port at 5:15 and we taged our bagges and we sent them away and we went to security we put bags in trays
-and we proceded we went to isembard kindom brunels cafè we got some drinks and we left to use the bathroom and then we had to get to the plane so we looked to see our gate and set off we borded the plane and they ran us through the safety instructions
+and we proceded we went to isambard kindom brunel cafè we got some drinks and we left to use the bathroom and then we had to get to the plane so we looked to see our gate and set off we borded the plane and they ran us through the safety instructions
 and set off it took us 2 and a half hours to get there.
                                
                                             4 toilet breaks later
