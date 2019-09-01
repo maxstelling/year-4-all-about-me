@@ -54,4 +54,5 @@ then the car broke doun so all that **week** we were inside!
                   
  #### menorca                
 we arrived at the air port at 5:15 and we taged our bagges and we sent them away and we went to security we put bags in trays
-and we proceded we went to isembard kindom brunels cafè we got some drinks and we left to use the bathroom
+and we proceded we went to isembard kindom brunels cafè we got some drinks and we left to use the bathroom and then we had to get to the plane so we looked to see our gate and set off we borded the plane and they ran us through the safety instructions
+and set off
