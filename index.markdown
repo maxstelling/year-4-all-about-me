@@ -62,4 +62,4 @@ and set off it took us 2 and a half hours to get there.
  "we are arriving at mahon"
  
  we landed and it was very muggy we collected our bags and the ploice had to check our passports
-    we got a taxi/mini bus and went to our lovely villa...                                        
+    we got a taxi/mini bus and went to our lovely villa... we arrived and jumped in the pool                                       
