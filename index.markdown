@@ -62,4 +62,5 @@ and set off it took us 2 and a half hours to get there.
  "we are arriving at mahon"
  
  we landed and it was very muggy we collected our bags and the ploice had to check our passports
-    we got a taxi/mini bus and went to our lovely villa... we arrived and jumped in the pool                                       
+    we got a taxi/mini bus and went to our lovely villa... we arrived and jumped in the pool  
+    then we went to bed the next morning we jumped in the pool agin 6 days later one morning we decided to go to he beach and it was ginomaic my grampy and I did some snocleing and the flag turned yellow so we headed home.
