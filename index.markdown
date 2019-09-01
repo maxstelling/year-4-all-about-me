@@ -55,4 +55,11 @@ then the car broke doun so all that **week** we were inside!
  #### menorca                
 we arrived at the air port at 5:15 and we taged our bagges and we sent them away and we went to security we put bags in trays
 and we proceded we went to isembard kindom brunels cafè we got some drinks and we left to use the bathroom and then we had to get to the plane so we looked to see our gate and set off we borded the plane and they ran us through the safety instructions
-and set off
+and set off it took us 2 and a half hours to get there.
+                               
+                                            4 toilet breaks later
+ 
+ "we are arriving at mahon"
+ 
+ we landed and it was very muggy we collected our bags and the ploice had to check our passports
+    we got a taxi/mini bus and went to our lovely villa...                                        
