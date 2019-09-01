@@ -53,4 +53,5 @@ the next day we had a bit of a lazy day because my mum had to un-pac
 then the car broke doun so all that **week** we were inside!
                   
  #### menorca                
-
+we arrived at the air port at 5:15 and we taged our bagges and we sent them away and we went to security we put bags in trays
+and we proceded we went to isembard kindom brunels cafè we got some drinks and we left to use the bathroom
