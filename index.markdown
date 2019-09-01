@@ -39,6 +39,8 @@ then the car broke down so all that **week** we were inside!
 
 ## menorca
 
+![Fridge Magnet](https://github.com/maxstelling/year-4-all-about-me/blob/master/IMG_9102.jpg)
+
 we arrived at the air port at 5:15 and we tagged our bags and we sent them away and we went to security we put bags in trays and we proceeded we went to Isambard kingdom Brunel café we got some drinks and we left to use the bathroom and then we had to get to the plane so we looked to see our gate and set off we boarded the plane and they ran us through the safety instructions and set off it took us 2 and a half hours to get there.
 
                                         4 toilet breaks later
